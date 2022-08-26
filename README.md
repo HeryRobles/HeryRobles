@@ -2,7 +2,7 @@
 - 👀 I’m interested in Web Development
 - 🌱 I’m currently learning programming in The University and courses
 - 💞️ I’m looking to collaborate on any company
-- 
+-  ✨I’ve always been a very responsible person 
 - 
 
 <!---
